@@ -9,3 +9,7 @@
    * Industry
    * Job Title
    * Correlation between Average Salary and Rating
+
+![christina-wocintechchat-com-CmvA0xCDfC8-unsplash](https://user-images.githubusercontent.com/85041697/121610111-4843c880-ca23-11eb-81bf-62481e6121d8.jpg)
+
+
